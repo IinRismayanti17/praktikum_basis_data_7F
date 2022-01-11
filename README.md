@@ -1,1 +1,0 @@
-# praktikum_basis_data_7F
